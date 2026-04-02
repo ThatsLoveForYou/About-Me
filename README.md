@@ -12,4 +12,3 @@ I am a Digital Product Developer and Content Creator dedicated to building tools
 • Platforms: Base44, Spotify for Podcasters
 🌟 My Philosophy
 I believe that technology should be a bridge to a better life. Whether I am designing a medical-grade meal planner or a whimsical children’s game, my goal is to provide high-quality, impactful content that helps people grow. 
-🌟 My Philosophy I believe that technology should be a bridge to a better life. Whether I am designing a medical-grade meal planner or a whimsical children’s game, my goal is to provide high-quality, impactful content that helps people grow.
